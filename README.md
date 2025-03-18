@@ -4,7 +4,7 @@
 [slides day 2](https://docs.google.com/presentation/d/1CMVhkM0LN33BvsvVuR31h-t4_yrxLGSp/edit?usp=sharing&ouid=112454259737266877874&rtpof=true&sd=true)
 
 # Day 3
-
+[slides day 3](https://docs.google.com/presentation/d/1LkDCiQzxP0-lO0SxGIfiVdJnFjrNQ4Mn/edit?usp=sharing&ouid=112454259737266877874&rtpof=true&sd=true)
 # Day 4
 
 

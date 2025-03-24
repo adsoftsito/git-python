@@ -1,3 +1,5 @@
+[notas](https://docs.google.com/spreadsheets/d/175di351_6oARN5hUhnmE-0rN40HUAxU9YPsdrU4sl-U/edit?usp=sharing)
+
 
 [sesiones grabadas](https://drive.google.com/drive/folders/1goKVhRtILUSOyLdXrPzJvLFn4uLZtaO5?usp=sharing)
 
